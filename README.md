@@ -2,10 +2,10 @@
 
 If you have any further questions you can join my [Discord server!](https://discord.gg/SHVTK7wuUM)
 
-# [-- dt](https://drive.google.com/file/d/1LyqRX8mRmGSGMzhWcoPqvxTqU21KLOoI/view?usp=drive_link)
+# [-- dt](https://drive.google.com/file/d/1LyqRX8mRmGSGMzhWcoPqvxTqU21KLOoI_/view?usp=drive_link)
 ![screenshot184](https://github.com/Spazza17/Spazza17-Skins/assets/71230537/7c4089bb-72d7-4260-9c21-43cdf9345fd1)
 
-# [G-Tea Main Spazza NF (No Finishers)](https://drive.google.com/file/d/1gYfhZx35y9zY8vjzDYQPl0zvJs6VnpG_/view?usp=drive_link)
+# [G-Tea Main Spazza NF (No Finishers)](https://drive.google.com/file/d/1LyqRX8mRmGSGMzhWcoPqvxTqU21KLOoI_/view?usp=drive_link)
 ![screenshot185](https://github.com/Spazza17/Spazza17-Skins/assets/71230537/71d3a396-5a8a-443c-936f-7cc518cdb0cc)
 
 # [Spazza17 DondaEx WoB](https://drive.google.com/file/d/17MLlU7vAH12Ct4C_h-BL_E-GvFi9nSki/view?usp=drive_link)
