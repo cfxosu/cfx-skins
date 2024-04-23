@@ -2,7 +2,7 @@
 
 If you have any further questions you can join my [Discord server!](https://discord.gg/SHVTK7wuUM)
 
-# [G-Tea Main Spazza](https://drive.google.com/file/d/1zi4rm0L1tiCZ_cSJth_-cWF2VDocX2KZ/view?usp=drive_link)
+# [-- dt](https://drive.google.com/file/d/1LyqRX8mRmGSGMzhWcoPqvxTqU21KLOoI/view?usp=drive_link)
 ![screenshot184](https://github.com/Spazza17/Spazza17-Skins/assets/71230537/7c4089bb-72d7-4260-9c21-43cdf9345fd1)
 
 # [G-Tea Main Spazza NF (No Finishers)](https://drive.google.com/file/d/1gYfhZx35y9zY8vjzDYQPl0zvJs6VnpG_/view?usp=drive_link)
